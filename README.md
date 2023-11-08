@@ -1,1 +1,0 @@
-# PSUC-MIT-LabManual
